@@ -2,7 +2,7 @@
 
 》* 。 • ˚ ˚ ˛ * 。° 。 • ˚《
 
-he / him - isfp 9w1 - kinnie 
+he / him - esfp 3w2 - kinnie 
 
 c+h always allowed! pls int!!  (ﾉ´ヮ´)ﾉ*:･ﾟ✧
 
